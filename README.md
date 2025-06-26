@@ -1,3 +1,1 @@
 # Photosynthesis
-# Photosynthesis
-# Photosynthesis
